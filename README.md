@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Patricia Oliveira
-- 👀 I’m interested in Emotional Intelligence (EI) or Inteligência Emocional (IE).
+- 👀 I’m interested in Emotional Intelligence (EI).
 - 🌱 I’m currently learning Python, as I am an EI Mentor.
 - 💞️ I’m looking to collaborate on human skills and professional high performance.
 - 📫 How to reach me: https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=patriciaoliveira-communicationstrategist
